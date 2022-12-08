@@ -1,1 +1,0 @@
-# suvikan.github.io
